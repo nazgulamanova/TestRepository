@@ -1,1 +1,1 @@
-The way to go
+World Championship!!
